@@ -1,4 +1,4 @@
-IF YOU ARE ON THE GITHUB PAGE FOR THIS AND NOT THE SITE THIS IS THE LINK https:/autumnREPOS.github.io/
+IF YOU ARE ON THE GITHUB PAGE FOR THIS AND NOT THE SITE THIS IS THE LINK https:/autumnREPOS.github.io/index.html
 ---
 Subscribe to https://youtube.com/@autumnnn1 since i am the creator of this.
 ---
